@@ -1,5 +1,5 @@
 ![](http://i.imgur.com/OUkLi.gif)
 
-![](http://i.imgur.com/Ssfp7.gif)
+![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
 
 ![](http://i.imgur.com/60bts.gif)
